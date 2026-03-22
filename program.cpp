@@ -17,7 +17,10 @@ int main() {
 }
 
 
-"C:\Users\gauta\Pictures\Screenshots\Screenshot 2026-03-23 000030.png"
+
+
+
+
 
 
 
