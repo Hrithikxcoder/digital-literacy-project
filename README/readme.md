@@ -3,7 +3,7 @@
 
 👨‍🎓 Student Details
 
-Name: HRITHIK ROSHANA
+Name: HRITHIK ROSHAN
 
 Registration Number: 25BCY10209
 
