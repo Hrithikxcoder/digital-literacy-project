@@ -63,4 +63,4 @@ Drafted professional emails and created a social media checklist.
 
 Researched cybercrime and created a prevention checklist.
 
-🎯 Learning Outcomes Improved understanding of digital tools and platforms Learned safe and responsible internet usage Developed professional communication skills Built an online portfolio for future opportunities If you want, I can also customize it with your branch, add badges, or make it more attractive (with emojis + formatting for higher marks) 👍
+🎯 Learning Outcomes Improved understanding of digital tools and platforms Learned safe and responsible internet usage Developed professional communication skills Built an online portfolio for future opportunities
